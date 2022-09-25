@@ -1,0 +1,1 @@
+# idolclass-data.github.io
